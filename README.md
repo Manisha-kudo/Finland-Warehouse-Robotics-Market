@@ -1,1 +1,0 @@
-# Finland-Warehouse-Robotics-Market
